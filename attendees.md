@@ -8,3 +8,8 @@ Check in for the GWC @ AU meeting by dropping your name, username, major, and yo
 
 ---
 <!-- ADD YOUR ENTRY BELOW THIS LINE -->
+
+### Name: Amogus
+* **Major: Sussy** 
+* **Favorite Snack:Meow** 
+* **Message for GWC ⸜(｡˃ ᵕ ˂ )⸝♡: Big Dada**
